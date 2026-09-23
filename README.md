@@ -1,2 +1,0 @@
-# Supanika
-Idk
